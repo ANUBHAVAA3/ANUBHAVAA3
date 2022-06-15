@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ANUBHAVAA3
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in learning and collaboration 
+- 🌱 I’m currently learning Web3 Bootcamp PR
+- 💞️ I’m looking to collaborate on NFT Art Community 
 - 📫 How to reach me https://linktr.ee/myanubhavaa3
 
 Tierra en Evolucion Anubhavaa
